@@ -1,2 +1,0 @@
-# CV
-#JITANSHU PATRA
